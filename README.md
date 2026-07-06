@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AUDN050823HPLQMCA7
+AUDN050823HPLQMCA7
